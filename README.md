@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi my name is Jubs, não estudo, só jogo ludo :)
 
 <!--
 **Julianagomes28/Julianagomes28** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
